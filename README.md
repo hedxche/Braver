@@ -1,1 +1,1 @@
-https://hopeless-rd.github.io/Braver/
+https://hedxche.github.io/Braver/index.html
